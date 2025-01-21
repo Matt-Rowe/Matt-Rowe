@@ -7,4 +7,3 @@ I'm Matt. I am brand new to this field and it most definitely will not be easy f
 - 💬 Ask me about just about anything. I am always open to learning something new or talking about stuff I already know.
 - 📫 How to reach me: matthew.rowe@student.northampton.edu (I check my school email multiple times per day)
 - ⚡ Fun fact: I enjoy gaming, listening to music, golfing, LEGOs, and I love watching football. Go birds!
--->
